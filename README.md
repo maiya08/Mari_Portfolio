@@ -44,4 +44,3 @@ I graduated as summa cum laude and valedictorian from high school and college.
 
 
 
-
