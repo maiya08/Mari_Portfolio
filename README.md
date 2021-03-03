@@ -7,7 +7,7 @@ I taught myself how to draw out of frustration that movies ended (the show must 
 I loved people,
 and I was passionate about being in the action.
 
-I taught myself how to draw out of frustration that movies ended **(the show must go on!)**. This practice led me to friends who requested pop culture art, portraits, and comics. It was smooth sailing until this horrible beast called Algebra stepped into my world. All of a sudden I had to focus on grades and standardized testing. I started failing miserably.
+I taught myself how to draw out of frustration that movies ended **(the show must go on!)**. This practice led me to friends who requested pop culture art, portraits, and comics. It was smooth sailing until this horrible beast called Algebra stepped into my world. All of a sudden I had to focus on grades and standardized testing. *I started failing miserably.*
 
 In 7th grade, I was tested for reading comprehension and the results stated that I was at a 3rd grade reading level.
 
