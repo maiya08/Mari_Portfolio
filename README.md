@@ -21,3 +21,5 @@ I rose up to the Honor Roll, got into the Honor Society, and raised my GPA to it
 My peers elected me as their high school President, Vice President, and Class Representative.
 My guidance counselor even assigned me to volunteer as an after-school tutor.
 I graduated as summa cum laude and valedictorian from high school and college.
+
+> The question is not what you look at, but what you see. - Henry David Thoreau
