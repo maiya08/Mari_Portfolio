@@ -1,7 +1,7 @@
 # Mari_Portfolio
 ## See Like An Artist
 
-I taught myslef how to draw out of frustration that movies ended (the show must go on!). This practice led me to friends who requested pop culture art, portraits, and comics. It was smooth sailing until this horrible beast called Algebra stepped into my world. All of a sudden I had to focus on grades and standardized testing. I started failing miserably.
+I taught myself how to draw out of frustration that movies ended (the show must go on!). This practice led me to friends who requested pop culture art, portraits, and comics. It was smooth sailing until this horrible beast called Algebra stepped into my world. All of a sudden I had to focus on grades and standardized testing. I started failing miserably.
 
 I loved people,
 and I was passionate about being in the action.
