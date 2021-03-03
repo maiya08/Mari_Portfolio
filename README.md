@@ -2,7 +2,8 @@
 ## See Like An Artist
 
 ### Biography
-I taught myself how to draw out of frustration that movies ended (the show must go on!). This practice led me to friends who requested pop culture art, portraits, and comics. It was smooth sailing until this horrible beast called Algebra stepped into my world. All of a sudden I had to focus on grades and standardized testing. I started failing miserably.
+I've always had a peculiar way of doing things. As a little girl, I saw my letters backwards, turned my paper horizontal to write downward, and involved myself in daily economics by trading stickers, collecting markers,
+and selling 10-cent dinosaur drawings to my 4th grade compatriots.
 
 I loved people,
 and I was passionate about being in the action.
