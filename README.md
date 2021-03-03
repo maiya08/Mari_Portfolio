@@ -43,8 +43,11 @@ I graduated as summa cum laude and valedictorian from high school and college.
 [My Art](https://maiyalith.wixsite.com/marifaye)
 
 My Pieces
+
 ![portimage_01](https://user-images.githubusercontent.com/79935758/109868256-6a17fd00-7c35-11eb-9c5b-4c55a7731b8b.gif)
 ![portimage_02](https://user-images.githubusercontent.com/79935758/109868258-6ab09380-7c35-11eb-8be3-07b9b218413d.gif)
 ![portimage_03](https://user-images.githubusercontent.com/79935758/109868260-6ab09380-7c35-11eb-91f0-9c8a03341318.gif)
 ![portimage_05](https://user-images.githubusercontent.com/79935758/109868262-6b492a00-7c35-11eb-95ae-76c02e8d685c.gif)
 ![portimage_06](https://user-images.githubusercontent.com/79935758/109868264-6b492a00-7c35-11eb-8f48-77b73f0e6697.jpg)
+
+
