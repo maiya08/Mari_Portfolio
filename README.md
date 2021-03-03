@@ -25,8 +25,17 @@ I graduated as summa cum laude and valedictorian from high school and college.
 > "The question is not what you look at, but what you see." - Henry David Thoreau
 
 ### Inspirations 
-- Nature
-- Artists' Journals
+- Urban Environments
+1. Parks
+2. City
+3. People
+
+- Museums
+1. Orlando Museum of Art
+2. Metropolitan Museum of Art
+3. Dali Museum
+
 - Books/Films
-
-
+1. Disney
+2. Neil Gaiman artwork
+3. Guillermo del Torro films
